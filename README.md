@@ -1,0 +1,1 @@
+# Autoselect_Analitica
